@@ -27,7 +27,7 @@ Chorus: (first two lines are shouted)
 Oh, we talk! We make animal noises. We fight powerfully.  
 _And we'll rant and we'll roar like true Outlands warriors._  
 **mi toki! mi mu. lon moli la lon!**  
-We talk! We make animal noises. At death? Yes!  
+We talk! We make animal noises. At death [we are] there!  
 _We'll rant and we'll roar to death and beyond._  
 **mi suli lon soweli palisa lawa.**  
 We are glorious by the ruling stick-animal.  
