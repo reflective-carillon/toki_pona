@@ -88,8 +88,8 @@ Verse:
 **o kulupu tawa jan moli, jan pona.**  
 Gather around the dead people, the good people.  
 _Now raise you a glass to the ones who have fallen._  
-**o moku! o sewi e jan weka.**  
-Drink! Elevate the absent people.  
+**o moku! o sewi e jan ken ala.**  
+Eat/drink! Elevate the people who can't.  
 _Yes, raise you a toast to those who are gone._  
 **kon ona li lawa e nasin, e sona.**  
 Their spirits guide [our] path and [our] knowledge.  
